@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 1 cup sugar
+- 2 cups of sugar
 - 1 cup water
 - 1 cup of raw hazelnuts
 
